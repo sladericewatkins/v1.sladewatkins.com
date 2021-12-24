@@ -1,0 +1,1 @@
+This is here as a read-only archive for historical purposes, you have no permission to copy the contents of this repository under any circumstances. Any unauthorized copies may be met with legal action. Thank you for your cooperation!
